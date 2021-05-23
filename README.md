@@ -1,3 +1,3 @@
-Ohayou Sekai Good Morning World!
+おはよう世界 Good Morning World!
 
 初めまして、よろしくお願いします！
